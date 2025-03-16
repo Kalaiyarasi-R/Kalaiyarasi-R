@@ -11,9 +11,9 @@
 
 - 📫 How to reach me **kalaiyarasir20@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/WELLCOME/Downloads/Resume%20by%20Kalaiyarasi.pdf](file:///C:/Users/WELLCOME/Downloads/Resume%20by%20Kalaiyarasi.pdf)
+- 📄 Know about my experiences 
 
-- ⚡ Fun fact **I thin I am Funny**
+- ⚡ Fun fact **I think I am Funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
